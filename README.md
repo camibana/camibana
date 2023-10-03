@@ -2,6 +2,6 @@
 
 ## Sejam bem vindos! 😄
 
-### Sou estudante de Sistemas para Internet e por aqui vou expor meu progresso com o uso de linguagens de programação e imersão no mundo no Tech!⚡
+### Sou estudante de Sistemas para Internet e por aqui vou expor meu progresso como desenvolvedora!⚡
 
 📫 Para entrar em contato comigo: camilacscruz@gmail.com
